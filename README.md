@@ -75,9 +75,9 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 ## 📣 How about an Office quote before you go?
 
-> It has to be official, and it has to be urine.
+> I have a lot of questions. Number one, how dare you?
 >
-> <p>- Dwight Schrute</p>
+> <p>- Kelly Kapoor</p>
 
 _Quote requested from [The Office API](https://www.officeapi.dev/)_
 
