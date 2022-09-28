@@ -75,7 +75,7 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 ## 📣 How about an Office quote before you go?
 
-> Well, Happy Birthday Jesus. Sorry your party’s so lame.
+> I. Declare. Bankruptcy!
 >
 > <p>- Michael Scott</p>
 
