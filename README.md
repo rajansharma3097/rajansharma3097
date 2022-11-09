@@ -75,9 +75,9 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 ## 📣 How about an Office quote before you go?
 
-> Well, Happy Birthday Jesus. Sorry your party’s so lame.
+> I'm glad Michael's getting help. He has a lot of issues, and he's stupid.
 >
-> <p>- Michael Scott</p>
+> <p>- Phyllis Lapin</p>
 
 _Quote requested from [The Office API](https://www.officeapi.dev/)_
 
