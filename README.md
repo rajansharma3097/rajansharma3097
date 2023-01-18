@@ -75,9 +75,9 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 ## 📣 How about an Office quote before you go?
 
-> I am immensely proud of what I did for that turtle!
+> Shut up about the sun. SHUT UP ABOUT THE SUN!
 >
-> <p>- Kevin Malone</p>
+> <p>- Gabe Lewis</p>
 
 _Quote requested from [The Office API](https://www.officeapi.dev/)_
 
