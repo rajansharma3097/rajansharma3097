@@ -75,7 +75,7 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 ## 📣 How about an Office quote before you go?
 
-> Dwight, you ignorant slut!
+> Everybody stay calm! Stay f*&#!#% calm!
 >
 > <p>- Michael Scott</p>
 
