@@ -75,9 +75,9 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 ## 📣 How about an Office quote before you go?
 
-> I feel like all my kids grew up, and then they married each other. It’s every parent’s dream.
+> I have a lot of questions. Number one, how dare you?
 >
-> <p>- Michael Scott</p>
+> <p>- Kelly Kapoor</p>
 
 _Quote requested from [The Office API](https://www.officeapi.dev/)_
 
