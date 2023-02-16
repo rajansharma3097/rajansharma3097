@@ -75,7 +75,7 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 ## 📣 How about an Office quote before you go?
 
-> If I had a gun with two bullets and I was in a room with Hitler, Bin Laden, and Toby, I would shoot Toby twice.
+> I feel like all my kids grew up, and then they married each other. It’s every parent’s dream.
 >
 > <p>- Michael Scott</p>
 
