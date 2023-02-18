@@ -75,9 +75,9 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 ## 📣 How about an Office quote before you go?
 
-> I had feelings today for a coworker that I haven't had in years... In my defense he was grabbing my crotch fairly aggressively at the time.
+> I'm glad Michael's getting help. He has a lot of issues, and he's stupid.
 >
-> <p>- Jim Halpert</p>
+> <p>- Phyllis Lapin</p>
 
 _Quote requested from [The Office API](https://www.officeapi.dev/)_
 
