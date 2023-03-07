@@ -75,9 +75,9 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 ## 📣 How about an Office quote before you go?
 
-> Sometimes I’ll start a sentence, and I don’t even know where it’s going. I just hope I find it along the way.
+> If you pray enough, you can change yourself into a cat person.
 >
-> <p>- Michael Scott</p>
+> <p>- Angela Martin</p>
 
 _Quote requested from [The Office API](https://www.officeapi.dev/)_
 
