@@ -73,6 +73,8 @@ Want to know more about me? [Check out my portfolio.](https://rjaysharma.com/)
 
 <br>
 
+Feel Free to [buy me a coffee](https://www.buymeacoffee.com/rjaysharma) 😉
+
 <!-- ## 📣 How about an Office quote before you go?
 
 > Shut up about the sun. SHUT UP ABOUT THE SUN!
